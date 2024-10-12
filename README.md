@@ -18,7 +18,7 @@ My skils:
    
 Something else:
 - 🔭 I’m currently working as a BIM-coordinator (Civil Engeniring), but want to be a Data Scientist!
-- 📫 How to reach me: [<img src="https://github.com/0leg-Ivanov/0leg-Ivanov/blob/main/Images/tg.png" alt="drawing" width="30"/>](https://t.me/Oleg_ivan0v), [<img src="https://github.com/0leg-Ivanov/0leg-Ivanov/blob/main/Images/mail.png" alt="drawing" width="30"/>](mailto:olivanovpoch@yandex.ru), [<img src="https://github.com/0leg-Ivanov/0leg-Ivanov/blob/main/Images/hh.png" alt="drawing" width="30"/>]([https://hh.ru/applicant/resumes?hhtmFrom=main&hhtmFromLabel=header](https://hh.ru/applicant/resumes/view?resume=0a83ed9bff0ddc7cb20039ed1f47506841554c))
+- 📫 How to reach me: [<img src="https://github.com/0leg-Ivanov/0leg-Ivanov/blob/main/Images/tg.png" alt="drawing" width="30"/>](https://t.me/Oleg_ivan0v), [<img src="https://github.com/0leg-Ivanov/0leg-Ivanov/blob/main/Images/mail.png" alt="drawing" width="30"/>](mailto:olivanovpoch@yandex.ru), [<img src="https://github.com/0leg-Ivanov/0leg-Ivanov/blob/main/Images/hh.png" alt="drawing" width="30"/>]([https://hh.ru/applicant/resumes?hhtmFrom=main&hhtmFromLabel=header](https://hh.ru/applicant/resumes/view?resume=0a83ed9bff0ddc7cb20039ed1f47506841554c)
 
 
 [](olivanovpoch@yandex.ru)
